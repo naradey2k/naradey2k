@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-:dart: **You can find more information about me [here](https://drive.google.com/file/d/14EZJauv9qVIQGrNKZlS95URTVi8keV5H/view?usp=sharing).**
+:dart: **You can find more information about me [here](https://drive.google.com/file/d/1d__uK4mJVsAHWWDBn4fTYR8FLhjVjqxg/view?usp=sharing).**
 
 📫 **Connect with me (social media and public profiles):** 
 
